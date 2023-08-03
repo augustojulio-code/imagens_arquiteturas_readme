@@ -1,0 +1,1 @@
+# imagens_arquiteturas_readme
